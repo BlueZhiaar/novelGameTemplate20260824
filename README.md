@@ -1,0 +1,1 @@
+# novelGameTemplate20260824
